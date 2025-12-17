@@ -14,6 +14,6 @@ korkudan engeliyor abisi gercekleri yuzune vurunca
 3 <img width="1092" height="774" alt="image" src="https://github.com/user-attachments/assets/11dbd856-9184-490c-84ad-7759ea09f2e8" />
 
 
-4 https://media.discordapp.net/attachments/1304170238006530061/1450967486311829655/image.png?ex=69447646&is=694324c6&hm=fbef19d73b77a333f4649902031490465754abb6fa1b69f0855c64b3c688ecb3&=&format=webp&quality=lossless
+4 ![Uploading image.png…]()
 
 
