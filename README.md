@@ -18,12 +18,7 @@ korkudan engeliyor abisi gercekleri yuzune vurunca
 
 bu arkadas sozde botcu yazilimci gelip benden yardim isteyen adam la kimse bu ite guvenmesin botcu bile degil 
 
-
-5  <img width="1028" height="376" alt="image" src="https://github.com/user-attachments/assets/fb8e61c2-fa33-4172-9184-d80143af6358" />
-luhux benim can gardasim ondan satin aliyor 2k tl yakin para odeyim sonra botu ben yaptim diyor canim git kod ogren 
-
-
-6  <img width="1529" height="90" alt="image" src="https://github.com/user-attachments/assets/a85b25ca-cb19-4ece-9a2d-2e73bbb1fcc5" />
+5 <img width="1529" height="90" alt="image" src="https://github.com/user-attachments/assets/a85b25ca-cb19-4ece-9a2d-2e73bbb1fcc5" />
 la cakal para la aldigin botu sen nasil yapiyon cakal oglu cakal
 
 
